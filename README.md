@@ -1,3 +1,7 @@
-- 👋 Hi, I’m @N.a.s.t.y_jj💦
+- 👋 Hi, I’m Mikelly-Mikey.
 - 👀 I’m interested with this group
-- 📫 How to reach me on Instagram as @n.a.s.t.y_jj
+- 📫 How to reach me on;
+-  Instagram as @its._.j.m
+-  X as @juma_mikey
+- Ready to learn more with you as we up our game
+- 
