@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Mikelly-Mikey.
-- 👀 I’m interested with this group
+- 👀 I've interest in coding and web designing.
 - 📫 How to reach me on;
--  Instagram as @its._.j.m
+-  Instagram as @_m.i.k.a.e.l.i_
 -  X as @juma_mikey
-- Ready to learn more with you as we up our game
+- Ready to learn more with you as we up our game.
 - 
