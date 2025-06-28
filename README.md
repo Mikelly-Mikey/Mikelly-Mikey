@@ -1,7 +1,4 @@
 - 👋 Hi, I’m Mikelly-Mikey.
-- 👀 I've interest in coding and web designing.
-- 📫 How to reach me on;
--  Instagram as @_m.i.k.a.e.l.i_
--  X as @juma_mikey
-- Ready to learn more with you as we up our game.
+- 👀 I'm an ethusiastic young web developer.
+- Ready to learn more with you as I dive deep into the web development zone.
 - 
