@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Mikelly-Mikey.
 - 👀 I'm an ethusiastic young web developer.
-- Ready to learn more with you as I dive deep into the web development zone.
-- 
+- Ready to learn more as I dive deep into the web development zone.
+- Step by step to the pro-level.
